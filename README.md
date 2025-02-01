@@ -1,0 +1,1 @@
+# uas-artifical-intelligence-samuel-nasib-sirait-20220801487
